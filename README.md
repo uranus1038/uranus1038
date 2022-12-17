@@ -1,6 +1,6 @@
 ### 
-    📌 Zweed n' Roll - ช่วงเวลา (A Moment) [Official Video]
-𝗵𝘁𝘁𝗽𝘀://𝘄𝘄𝘄.𝘆𝗼𝘂𝘁𝘂𝗯𝗲.𝗰𝗼𝗺/𝘄𝗮𝘁𝗰𝗵?𝘃=𝗞𝗸𝗶𝗷𝟲𝗻𝗘𝘀𝟮𝗫𝗠
+    📌 It’s just a bad day not a bad life. :)
+
 <!--
 **uranus1038/uranus1038** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
